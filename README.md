@@ -6,4 +6,4 @@
 
 🔗 Discord: https://discord.gg/aGbhWPYbXZ
 
-🛒 Cfx.re: https://forum.cfx.re/u/bmscripts/summary
+🔗 Cfx.re: https://forum.cfx.re/u/bmscripts/summary
