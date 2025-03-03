@@ -1,7 +1,5 @@
 ![BM Scripts](https://github.com/bmscripts/bmscripts/blob/main/BMScripts%20Banner.png)
 
-## Hello! BM Scripts is the project of solo developer Matt, who offers various scripts.
-
 ### Links:
 
 🔗 Discord: https://discord.gg/aGbhWPYbXZ
