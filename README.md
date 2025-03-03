@@ -1,4 +1,4 @@
-![BM Scripts]([https://github.com/jgscripts/.github/assets/3826279/9606c246-8a5d-42ba-a0c0-15d2c33e5c92](https://i.ibb.co/9mBqVSRP/BMScripts-Banner.png))
+![BM Scripts](https://i.ibb.co/9mBqVSRP/BMScripts-Banner.png)
 
 # The best FREE scripts for your FiveM server.
 
