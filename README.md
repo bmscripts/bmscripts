@@ -1,4 +1,4 @@
-![BM Scripts](https://i.ibb.co/xSPXpCdM/BMScripts-Banner.png)
+![BM Scripts](BMScripts-Banner.png)
 
 ### Links:
 
