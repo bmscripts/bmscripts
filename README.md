@@ -1,4 +1,4 @@
-![BM Scripts](BMScripts-Banner.png)
+![BM Scripts](https://github.com/bmscripts/bmscripts/blob/main/BMScripts%20Banner.png)
 
 ### Links:
 
