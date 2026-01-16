@@ -6,6 +6,6 @@
 
 🔗 Discord: https://discord.gg/s6RfBr97MW
 
-🔗 YouTube: https://youtube.com/bmscripts
+🔗 YouTube: https://www.youtube.com/@bmscripts
 
 🔗 Cfx.re: https://forum.cfx.re/u/bmscripts/summary
