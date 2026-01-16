@@ -2,6 +2,10 @@
 
 ### Links:
 
+🔗 GitHub: https://github.com/bmscripts
+
 🔗 Discord: https://discord.gg/aGbhWPYbXZ
+
+🔗 YouTube: https://youtube.com/bmscripts
 
 🔗 Cfx.re: https://forum.cfx.re/u/bmscripts/summary
