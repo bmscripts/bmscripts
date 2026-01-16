@@ -4,7 +4,7 @@
 
 🔗 GitHub: https://github.com/bmscripts
 
-🔗 Discord: https://discord.gg/aGbhWPYbXZ
+🔗 Discord: https://discord.gg/Gr4ekME9zF
 
 🔗 YouTube: https://youtube.com/bmscripts
 
