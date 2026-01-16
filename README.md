@@ -2,7 +2,7 @@
 
 ### Links:
 
-📧 Email: contactbmscripts@gmail.com
+🔗 Email: contactbmscripts@gmail.com
 
 🔗 Discord: https://discord.gg/Gr4ekME9zF
 
