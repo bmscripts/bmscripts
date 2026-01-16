@@ -2,7 +2,7 @@
 
 ### Links:
 
-🔗 GitHub: https://github.com/bmscripts
+📧 Email: contactbmscripts@gmail.com
 
 🔗 Discord: https://discord.gg/Gr4ekME9zF
 
