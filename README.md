@@ -10,4 +10,4 @@
 
 🔗 YouTube: https://www.youtube.com/@bmscripts
 
-🔗 Forge Hub: [https://www.youtube.com/@bmscripts](https://forge.plebmasters.de/creators/bmscripts)
+🔗 Forge Hub: https://forge.plebmasters.de/creators/bmscripts
