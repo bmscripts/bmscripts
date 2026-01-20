@@ -4,7 +4,7 @@
 
 🔗 Email: contactbmscripts@gmail.com
 
-🔗 Discord: https://discord.gg/s6RfBr97MW
+🔗 Discord: https://discord.gg/xSkATZmmgh
 
 🔗 Website: https://bmscripts.github.io/website/
 
