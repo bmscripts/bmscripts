@@ -4,7 +4,7 @@
 
 🔗 Email: contactbmscripts@gmail.com
 
-🔗 Cfx.re: https://forge.plebmasters.de/creators/bmscripts
+🔗 Cfx.re: https://forum.cfx.re/u/bmscripts/summary
 
 🔗 Discord: https://discord.gg/xSkATZmmgh
 
