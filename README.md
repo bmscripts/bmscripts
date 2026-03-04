@@ -2,9 +2,9 @@
 
 ### Links:
 
-🔗 Email: contactbmscripts@gmail.com
-
 🔗 Cfx.re: https://forum.cfx.re/u/bmscripts/summary
+
+🔗 Email: contactbmscripts@gmail.com
 
 🔗 Discord: https://discord.gg/xSkATZmmgh
 
